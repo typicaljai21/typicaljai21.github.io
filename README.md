@@ -1,0 +1,1 @@
+# typicaljai21.github.io
